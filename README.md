@@ -9,7 +9,7 @@
   <img src="https://pixelsafari.neocities.org/dividers/misc/oil2.gif" width="400">
 </p>
  <p align="center">      𝘏𝘦𝘢𝘥 𝘵𝘰 𝘮𝘢𝘪𝘯 𝘧𝘰𝘳 𝘮𝘰𝘳𝘦
-<p align="center">       “𝙄𝙩'𝙨 𝙊𝙣𝙚 𝙏𝙝𝙞𝙣𝙜 𝙏𝙤 𝙌𝙪𝙚𝙨𝙩𝙞𝙤𝙣 𝙔𝙤𝙪𝙧 𝙈𝙞𝙣𝙙; 𝙄𝙩'𝙨 𝘼𝙣𝙤𝙩𝙝𝙚𝙧 𝙏𝙤 𝙌𝙪𝙚𝙨𝙩𝙞𝙤𝙣 𝙔𝙤𝙪𝙧 𝙀𝙮𝙚𝙨 𝘼𝙣𝙙 𝙀𝙖𝙧𝙨.”
+<p align="center">      "ℑ𝔣 ℑ 𝔥𝔞𝔡 𝔞 𝔫𝔦𝔠𝔨𝔢𝔩 𝔣𝔬𝔯 𝔢𝔳𝔢𝔯𝔶 𝔱𝔦𝔪𝔢 𝔱𝔥𝔞𝔱 𝔥𝔞𝔭𝔭𝔢𝔫𝔢𝔡... ℑ 𝔴𝔬𝔲𝔩𝔡𝔫'𝔱 𝔥𝔞𝔳𝔢 𝔬𝔫𝔢."
 <p align="center">
   <img src="https://pixelsafari.neocities.org/blinkies/web/dvdlove.gif" width="120">  <img src="https://pixelsafari.neocities.org/blinkies/no.gif" width="120"> <img src="https://pixelsafari.neocities.org/blinkies/chillinginbed.gif" width="120">
 
